@@ -23,9 +23,9 @@ I am open to **outsourcing projects** in **business analytics, data visualizatio
 ## 🔗 Connect With Me  
 📂 **Portfolio:** [Insert Portfolio Link]  
 📄 **Resume:** [Insert Resume Link]  
-🔗 **LinkedIn:** [Insert LinkedIn Profile]  
+🔗 **LinkedIn:** www.linkedin.com/in/vinita-shrimattie-wheeler-4a362760  
 
-📍 **Location:** [Your Location] (Open to relocation opportunities!)  
+📍 **Location:** Lindenhurst, NY (Open to relocation opportunities!)  
 
 ---
 
