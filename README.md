@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# 👋 Hi, I'm Shrimattie Wheeler!  
+# 👋 Hi, I'm Shrimattie (Vinita) Wheeler!  
 
 ## 🏆 About Me  
 I have 12 years of experience as an **accounting bookkeeper** in the real estate industry. Recently, I have been transitioning into **business analytics**, focusing on data-driven decision-making and visualization. I'm currently completing the **Business Analytics Program with TripleTen**, where I've developed skills in **SQL, Tableau, Power BI, and advanced spreadsheets**.  
