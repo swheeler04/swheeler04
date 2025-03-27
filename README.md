@@ -7,7 +7,7 @@ I have 12 years of experience as an **accounting bookkeeper** in the real estate
 
 ## 🎉 Fun Facts  
 - I love working with numbers and finding insights in data.  
-- Passionate about technology and always eager to learn new tools.  
+- Always eager to learn new tools.  
 - Enjoy building dashboards that tell compelling data stories.  
 
 ## 🚀 Looking for Opportunities  
